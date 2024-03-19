@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CzkTorsk or Christopher H. Tolloczko
+- 👋 Hi, I’m @CzkTorsken or Christopher H. Tolloczko
   
 - 👀 I’m interested in ... Interaction-, graphic- design, and 
 - 🌱 I’m currently doing a Masters in ... Interaction design!!!
